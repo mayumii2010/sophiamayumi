@@ -4,3 +4,5 @@ Oii, seja bem vinda(o) ao meu perfil.
 - Estou estudando na plataforma [Alura](https://cursos.alura.com.br/edutech)
 - Também estou na platarforma duolingo aperfeiçoando meu inglês.
 - Estou também na plataforma do [scratch](https://scratch.mit.edu/)
+
+![]{https://media.tenor.com/8X2WAQ8pkLcAAAAM/lesserafim-yunjin.gif)
