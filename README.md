@@ -5,4 +5,4 @@ Oii, seja bem vinda(o) ao meu perfil.😻🤍
 - Também estou na platarforma duolingo aperfeiçoando meu inglês.
 - Estou também na plataforma do [scratch](https://scratch.mit.edu/)
 
-![](https://media1.tenor.com/m/DN-YQy1QVEUAAAAC/sexy-mingyu-seventeen.gif)
+![](https://media.tenor.com/KLWEgN2rjc0AAAAM/kang-haerin-haerin.gif)
